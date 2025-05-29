@@ -1,1 +1,1 @@
-# The-Daily-Rays
+# KS News Website
